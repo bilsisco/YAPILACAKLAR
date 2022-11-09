@@ -1,5 +1,8 @@
 # YAPILACAKLAR
 <br>
 <br>
-<hr>
+
 Yapılacaklar ve organizasyonu
+<br>
+<br>
+<hr>
