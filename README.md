@@ -1,2 +1,5 @@
 # YAPILACAKLAR
-Yapılacakalr ve organizsyonu
+<br>
+<br>
+<hr>
+Yapılacaklar ve organizasyonu
