@@ -1,0 +1,2 @@
+# YAPILACAKLAR
+Yapılacakalr ve organizsyonu
